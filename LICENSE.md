@@ -1,4 +1,4 @@
-
+updated Script for easter tap simulator is the best easter tap simulator Script, featuring auto-collect and undetectable. Safe and powerful for all
 
 
 
